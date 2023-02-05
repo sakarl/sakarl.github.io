@@ -1,3 +1,3 @@
 # CYBERKARLSEN
 
-My awesome website: https://cyberkarlsen.com
+Link follows: https://cyberkarlsen.com
